@@ -1,0 +1,1 @@
+A peça GARRA-MECÂNICA_DEDO-DA-GARRA_V1_23-05-2024 precisa de ser reconstruída.
